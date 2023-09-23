@@ -2,11 +2,14 @@
 
 
 On September 23, 2023, in memory of my beloved dog Tiao Tiao, 
+
 I hope there will be no cars or illnesses in heaven.
 
 Tiaotiao my dear paparazzi  
 
 Gute Reise, lasst uns im nächsten Leben weitermachen   
+
+Wir wünschen Ihnen eine gute Reise, wir werden auch im nächsten Leben Verwandte sein
 
 love you
 
